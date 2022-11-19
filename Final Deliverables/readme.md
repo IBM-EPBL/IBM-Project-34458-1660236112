@@ -1,1 +1,1 @@
-[![SmartFarmer - IoT Enabled Smart Farming Application | Nalaiya Thiran](https://img.youtube.com/vi/YOUTUBE_VI...)](https://youtu.be/PwaX7NHsihM)
+[![SmartFarmer - IoT Enabled Smart Farming Application | Nalaiya Thiran](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.arcweb.com%2Fblog%2Fiot-steps-smart-farming-precision-agriculture&psig=AOvVaw2eYxQfpH-dnKtt8wvPM4w2&ust=1668975242996000&source=images&cd=vfe&ved=0CBAQjRxqFwoTCOCG2caHu_sCFQAAAAAdAAAAABAN)](https://youtu.be/PwaX7NHsihM)
